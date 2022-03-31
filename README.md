@@ -1,2 +1,2 @@
-# samansoltani.com
+# parastee.com
 My personal website
